@@ -1,8 +1,7 @@
-<<<<<<< HEAD
-# 
+
 **Puput Putriani**  
 :e-mail: puputputriani827@gmail.com
-:telephone: +6281212777182 
+:telephone: +6285319571415 
 =======
 # 171410048
 PUPUT PUTRIANI
